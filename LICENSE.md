@@ -1,4 +1,4 @@
-# 
+# instant Numbers for macOS Script | custom-functions + AI-assisted-analysis is the best Numbers for macOS script, featuring custom-functions and AI-assisted-analysis. Powerful,
 
 
 
